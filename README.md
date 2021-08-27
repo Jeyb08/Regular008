@@ -2,4 +2,4 @@
 - 👀 I’m interested in Data Science and Making Application
 - 🌱 I’m currently learning Data Science
 - 💞️ I’m looking to collaborate on Data Science
-- 📫 You can connect with thru my email lusegrojb28@gmail.com and my facebook https://www.facebook.com/JBLoseandGrow
+- 📫 You can connect with thru my email lusegrojb28@gmail.com and my facebook https://www.facebook.com/jeyb08
